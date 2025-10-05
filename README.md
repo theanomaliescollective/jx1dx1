@@ -6,7 +6,7 @@
 
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 
-OSDD-1b system - Ships DNI - Endogenics DNI
+OSDD-1b system - Endogenics DNI
 
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 
