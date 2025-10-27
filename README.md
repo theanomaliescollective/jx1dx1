@@ -26,7 +26,7 @@ PRINT = (".YOU.CAN.T.HIDE.")
 
 🦴★⛧✮⋆☠⋆✮⛧★🦴
 
-<img src="https://static.wikia.nocookie.net/roblox-webseries/images/c/c1/JX1bg_textless.png/revision/latest/scale-to-width-down/985?cb=20250731154837" alt="JX1DX1 | ROBLOX Webseries Wiki | Fandom"/><img width="985" height="587" alt="image" src="https://github.com/user-attachments/assets/14a79bee-c526-4097-bf24-9b1e2e5b50e5" />
+<img src="https://static.wikia.nocookie.net/roblox-webseries/images/c/c1/JX1bg_textless.png/revision/latest/scale-to-width-down/985?cb=20250731154837" alt="JX1DX1 | ROBLOX Webseries Wiki | Fandom"/>
 
 ────⋆⋅☆⋅⋆──
 
