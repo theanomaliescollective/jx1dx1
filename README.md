@@ -1,9 +1,8 @@
 ## .˚⊹. ࣪𓉸 ࣪⊹˚.
-.IT.IS.FAR.TOO.LATE.FOR.THIS.SHIT.
+.TOO.LATE.TO.DESTROY.ME.NOW.
 .˳·˖✶𓆩𓁺𓆪✶˖·˳.
 ࿐ ࿔*:･ﾟ
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTo4GaDR1QKaBdaaftcjywyAUuZ-6r2uBPg3A&amp;s" alt="stop.looking. (@JX1DX1) / Posts / X"/><img width="307" height="164" alt="image" src="https://github.com/user-attachments/assets/ef138d16-8c8b-4ce5-b8fa-0f4c11c67c94" />
-
+<img src="https://media.tenor.com/wYW5vCxSB44AAAAe/ihasafacelulz-jx1dx1.png" alt="Ihasafacelulz Jx1dx1 GIF - Ihasafacelulz Jx1dx1 - Discover &amp; Share GIFs"/>
 ·········
 .DON.T.YOU.UNDERSTAND.("?")
 -ˋˏ✄┈┈┈┈
