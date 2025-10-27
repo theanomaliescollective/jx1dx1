@@ -1,38 +1,19 @@
-## ✦•┈๑⋅⋯ ≽^•⩊•^≼ ⋯⋅๑┈•✦
+## .˚⊹. ࣪𓉸 ࣪⊹˚.
+.IT.IS.FAR.TOO.LATE.FOR.THIS.SHIT.
+.˳·˖✶𓆩𓁺𓆪✶˖·˳.
+࿐ ࿔*:･ﾟ
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTo4GaDR1QKaBdaaftcjywyAUuZ-6r2uBPg3A&amp;s" alt="stop.looking. (@JX1DX1) / Posts / X"/><img width="307" height="164" alt="image" src="https://github.com/user-attachments/assets/ef138d16-8c8b-4ce5-b8fa-0f4c11c67c94" />
 
-⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-
-<img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/0e49df10-6d64-45b3-bc6a-d2ec2981cc95" />
-
-⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-
-OSDD-1b system - Endogenics DNI
-
-⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-
-<img width="406" height="273" alt="image" src="https://github.com/user-attachments/assets/8a0bac23-801a-4211-bdac-4b4bb5d92c51" />
-
-⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-
-We're pretty chill! Feel free to INT just mind the plurality please :) if the active front seems to not be as chill as said, i apologize ;w;
-
-⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-
-Please do not cover us :(
-
-/ᐠ - ˕ -マ☆.˳·˖✶𓆩𓁺𓆪✶˖·˳.
-
-Oh! Feel free to add us as well :D we're always willing tomeet new friends just cant talk first for the life of us
-
-•*´¨`*•.¸¸.•*´¨`*•.¸¸.•*´¨`*•.¸¸.•*•*´¨`*•.¸¸.•*
-
-IF YOU SEEM WEIRD YOU WILL BE BLOCKED / HIDDEN AND WE'LL JUST AVOID YOU!!!
-
-˚̣̣̣ ꒷︶♡︶꒷˚̣̣̣︶ ͡𑁬♡໒ ͡ ︶˚̣̣̣꒷︶♡︶꒷ ˚̣̣̣
-
-<img width="248" height="203" alt="image" src="https://github.com/user-attachments/assets/f7a1a8d5-b0f4-4aa0-be6f-ef21f76a37dd" />
-
-˚.⋆⁺₊. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.~ᡣ𐭩₊
-Thank you for reading :D appreciate it
-
-((ESTIMATION OF TIME MAKING THIS : 15 MINUTES : FRONTER WHO MADE IT : REAPER)) 
+·········
+.DON.T.YOU.UNDERSTAND.("?")
+-ˋˏ✄┈┈┈┈
+.I.WOULD.HOPE.YOU.DO.
+-ˋˏ✄┈┈┈┈
+{{OSDD-1B SYSTEM, JX1DX1'S PROFILE}}
+𓋹⚠︎⚚
+PRINT = (".YOU.CAN.T.HIDE.") 
+🦴★⛧✮⋆☠⋆✮⛧★🦴
+<img src="https://static.wikia.nocookie.net/roblox-webseries/images/c/c1/JX1bg_textless.png/revision/latest/scale-to-width-down/985?cb=20250731154837" alt="JX1DX1 | ROBLOX Webseries Wiki | Fandom"/><img width="985" height="587" alt="image" src="https://github.com/user-attachments/assets/14a79bee-c526-4097-bf24-9b1e2e5b50e5" />
+────⋆⋅☆⋅⋆──
+.THERE.IS.NO.SAFETY.FOR.YOU.(",").NOAH.
+. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.
