@@ -18,7 +18,7 @@
 
 -ˋˏ✄┈┈┈┈
 
-{{OSDD-1B SYSTEM, JX1DX1'S PROFILE}}
+.WE.LL.BE.TOGETHER.(",").YES.FOREVER.(",").WE.WILL.NEVER.EVER.PART.
 
 𓋹⚠︎⚚
 
