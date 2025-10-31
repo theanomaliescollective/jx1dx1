@@ -1,33 +1,31 @@
 * . °•★|•°∵ ∵°•|☆•° . *
   
-## ´ཀ`ᴄᴀᴜꜱᴇ  ʏᴏᴜ ᴀɴᴅ ɪ, ᴡᴇ ᴡᴇʀᴇ ʙᴏʀɴ ᴛᴏ ᴅɪᴇ. ܁₊ ⊹ . ܁˖ . ܁
+##‧ ˚꒰🍷‧—  𝙸 𝚗𝚎𝚎𝚍𝚎𝚍 𝚢𝚘𝚞, 𝙸 𝚗𝚎𝚎𝚍𝚎𝚍 𝚢𝚘𝚞, 𝚋𝚞𝚝 𝚢𝚘𝚞 𝚓𝚞𝚜𝚝 𝚗𝚎𝚎𝚍𝚎𝚍 𝚝𝚒𝚖𝚎... 
+
 
 ───── ⋆⋅☆⋅⋆ ─────
 
-<img src="https://static.wikitide.net/sewhwiki/thumb/0/02/Map_City_Slice_icon.png/1200px-Map_City_Slice_icon.png" alt="Maps - Something Evil Will Happen Wiki"/>
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTGXcmvt7Wq5r7NkRaZQcmU1IY3cZdFbWmEvw&amp;s" alt="C0nn0rK9 🔆 Play Bad Things (@SillyNat_) / X"/>
 
 ───── ⋆⋅☆⋅⋆ ─────
 
-❝𝕯𝖔𝖓’𝖙 𝖒𝖆𝖐𝖊 𝖒𝖊 𝖘𝖆𝖉, 𝖉𝖔𝖓’𝖙 𝖒𝖆𝖐𝖊 𝖒𝖊 𝖈𝖗𝖞...❞
+❝❞
 
 ⋆｡‧₊°♱༺𓆩❦︎𓆪༻♱༉‧₊˚.
 
-𝕋𝕣𝕒𝕟𝕤𝕘𝕖𝕟𝕕𝕖𝕣 𝕝𝕖𝕤𝕓𝕚𝕒𝕟 (𝕄𝕋𝔽)
+misanthropic, iwec
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-## 𝑮𝑰𝑹𝑳𝑺.
-
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-## 🧡❤️🤍🩷💗
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR2q8aDgPD-PNe6wv9TiRNWrD4Z9hJrxktqUA&amp;s" alt="Oynrix on X"/>
 
 ════ ⋆★⋆ ════
 
-_As kindly as possible, I don't trust you, Telamon. Nothing personal, but you scare me._(**/dir**)
 
 ⋆｡ °✩⋆ ˚｡ ⋆୨୧⋆ ｡˚ ⋆✩° ｡⋆
 
-❝𝓘 𝓱𝓪𝓭 𝓪 𝓭𝓻𝓮𝓪𝓶. 𝓘 𝓰𝓸𝓽 𝓮𝓿𝓮𝓻𝔂𝓽𝓱𝓲𝓷𝓰 𝓘 𝔀𝓪𝓷𝓽𝓮𝓭...❞
+❝ _You need me._ ❞
 
 ‿︵‿︵‿୨ ୧‿︵‿︵‿
